@@ -1,2 +1,0 @@
-# bröllopsfotografen-
-inlämning bröllopsfotografen
